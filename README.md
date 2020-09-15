@@ -1,2 +1,2 @@
 # kartier-selfbot-leaked
-kartiers are an ass clan that skid other peoples selfbots and claim it as theres
+kartiers are a group of retards that skid every bot they see.
